@@ -1,4 +1,4 @@
-# Untitled
+# Cureus Journal of Medical Science
 
 ## **The Cureus Difference**
 
